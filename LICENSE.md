@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot exclusive Script is the best steal a brainrot Script, featuring undetectable and aimbot. Safe and powerful for all your needs.
 
 
 
